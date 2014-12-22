@@ -35,7 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Salomons diuine arts, of 1. Ethickes, 2. Politickes, 3. Oeconomicks that is; the gouernment of 1. Be
+
+1. TO THE RIGHT HONOVRABLE AND Hopefull Lord, ROBERT, Earle of Eſſex, my ſingular good Lord, all increaſe of Grace & true Honour.
+
 **Types of content**
 
   * There are 26 **drama** parts! This is **prose drama**.
